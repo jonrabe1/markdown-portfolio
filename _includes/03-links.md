@@ -1,1 +1,1 @@
-[GitHub for Jon](https://github.com/jonrabe1/)
+[GitHub Profile for Jon](https://github.com/jonrabe1)
